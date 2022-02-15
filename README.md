@@ -1,0 +1,1 @@
+# -In-a-college-the-faculty-member-wants-find-a-student-with-help-of-their-register-number-now-he-wan
